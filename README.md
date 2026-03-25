@@ -1,6 +1,6 @@
 ### Hey, I'm Max 👋
 
-Built games, traded markets, now closing deals in CRE — all supercharged by AI.
+Built games, traded markets, closed real estate deals. Years of depth in each — now weaponized by AI to fuse all my skills.
 
 [![YouTube](https://img.shields.io/badge/YouTube-%40whatupmax-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://youtube.com/@whatupmax)
 [![Instagram](https://img.shields.io/badge/Instagram-%40whatupmaxx-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/whatupmaxx)
